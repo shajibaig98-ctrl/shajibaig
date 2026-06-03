@@ -29,7 +29,7 @@ Mechanical Engineer (B. Tech) with hands-on MEP design engineering experience an
 - Inventory accuracy through tracking, labelling, and cycle counts
 - Followed safety procedures and operational standards
 
-### Plumbing & Electrical Associate
+### Plumbing, Electrical & HVAC Associate
 **The Home Depot** | Mississauga, ON | Mar 2025 – Aug 2025
 - Patrolled assigned floor sections, identifying hazards and flagging suspicious behavior to loss prevention
 - Conducted cycle counts and inventory checks to monitor shrinkage and ensure stock accuracy
