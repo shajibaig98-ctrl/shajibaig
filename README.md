@@ -23,8 +23,6 @@ Mechanical Engineer (B. Tech) with hands-on MEP design engineering experience an
 
 ## 💼 Experience
 
-## 💼 Experience
-
 ### Logistics & Inventory Operations Associate
 **Walmart Canada** | Ontario, Canada | April 2026 – Present
 - Supported warehouse and logistics operations, including receiving, unloading, inventory handling, and stock replenishment in a high-volume environment
