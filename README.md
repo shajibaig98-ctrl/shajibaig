@@ -35,7 +35,7 @@ Mechanical Engineer (B. Tech) with hands-on MEP design engineering experience an
 - Conducted cycle counts and inventory checks to monitor shrinkage and ensure stock accuracy
 - Processed returns with verification checks to prevent fraudulent transactions
 - Upheld store safety standards and followed emergency and incident response procedures
-- 
+ 
 ### Process Executive — Data Operations & Quality Management
 **Cognizant Technology Solutions (Google Ads Project)** | Hyderabad, India | Nov 2020 – Jan 2024
 - Managed high-volume data operations and audit reviews for a North American client
