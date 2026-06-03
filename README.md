@@ -29,6 +29,13 @@ Mechanical Engineer (B. Tech) with hands-on MEP design engineering experience an
 - Inventory accuracy through tracking, labelling, and cycle counts
 - Followed safety procedures and operational standards
 
+### Plumbing & Electrical Associate
+**The Home Depot** | Mississauga, ON | Mar 2025 – Aug 2025
+- Patrolled assigned floor sections, identifying hazards and flagging suspicious behavior to loss prevention
+- Conducted cycle counts and inventory checks to monitor shrinkage and ensure stock accuracy
+- Processed returns with verification checks to prevent fraudulent transactions
+- Upheld store safety standards and followed emergency and incident response procedures
+- 
 ### Process Executive — Data Operations & Quality Management
 **Cognizant Technology Solutions (Google Ads Project)** | Hyderabad, India | Nov 2020 – Jan 2024
 - Managed high-volume data operations and audit reviews for a North American client
